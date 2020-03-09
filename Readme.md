@@ -1,1 +1,1 @@
-basically a portalgun for the goos.
+basically a portalgun for the goos :O.
